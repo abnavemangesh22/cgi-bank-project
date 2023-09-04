@@ -1,1 +1,1 @@
-1. My favorite subject is history 
+1. My favorite subject is history and maths 
